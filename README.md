@@ -1,1 +1,0 @@
-# nersika-app
